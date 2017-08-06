@@ -1,4 +1,6 @@
-# UbuntuStrike_amd64
+# UbuntuStrike_amd64 Download link : 
+https://mega.nz/#!FGh0EK4Y!aZEGG3IpUMKijPGmTgSoX0IRWic-TFiIAr7DCUh6CSI
+
 		  VERY IMPORTANT!!!!!!!!!!!!!
 *********************************************************
 *********************************************************
